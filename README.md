@@ -1,3 +1,5 @@
+![gif](https://media1.tenor.com/m/LRGlSmUcDwIAAAAC/raya-a-space-for-the-unbound.gif)
+
 # 💫 About Me:
 🏫- I am an information systems student at UPN "Veteran" East Java<br>🔭- I am enthusiastic to learn many things, especially web developer and data analyst<br>
 
